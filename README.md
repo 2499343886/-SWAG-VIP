@@ -26,9 +26,9 @@
 -----------------------------------    
 免费福利1
 
-1.全球顶尖成人视频App，您的专属撸撸神器Huluwa，永久免费，无需翻墙！
-2.极速秒播，海量影片资源，后台缓存让您随时离线观看
-3.使用推广码0ap92l还可以获取专属观影特权
-4.下载戳我：http://share.apinug.club/api/open/video/share/default.html?a=uv6c9m&t=0ap92l
-5.劲爆视频：抖音牛逼姐大战腹肌男友，高桥圣子首部高清无码
-6.还有超美明星主播直播等你哦！
+极速秒播，海量影片资源，后台缓存让您随时离线观看
+
+使用推广码“0ap92l”即可打开观看直播大秀权限
+
+下载戳我：http://share.apinug.club/api/open/video/share/default.html?a=uv6c9m&t=0ap92l
+
