@@ -23,12 +23,12 @@
 非网盘观看 速度快 不用下载      
     
 安卓 苹果 电脑 三端通用。 
------------------------------------    
+  
+
 免费福利1
+-----------------------------------  
+极速秒播，海量影片资源，直播大秀。
 
-极速秒播，海量影片资源，后台缓存让您随时离线观看
-
-使用推广码“0ap92l”即可打开观看直播大秀权限
-
-下载戳我：http://share.apinug.club/api/open/video/share/default.html?a=uv6c9m&t=0ap92l
+下载戳我：
+http://share.apinug.club/api/open/video/share/default.html?a=uv6c9m&t=0ap92l
 
