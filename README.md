@@ -32,3 +32,5 @@
 下载戳我：
 http://share.apinug.club/api/open/video/share/default.html?a=uv6c9m&t=0ap92l
 
+注意：由于是大人软件，所以套了个壳，也就是说下载时候显示的是个游戏软件，安装后重新打开一次就会变成你想要的软件。
+
